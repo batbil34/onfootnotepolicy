@@ -116,4 +116,4 @@ For questions about this Privacy Policy, contact:
 
 Bu Gizlilik Politikası hakkındaki sorularınız için:
 
-[com.batu.onfootnote@gmail.com](mailto:com.batu.onfootnote@gmail.com)
+[yagli-kraken6i@icloud.com](mailto:yagli-kraken6i@icloud.com)
